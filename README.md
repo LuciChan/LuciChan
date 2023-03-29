@@ -1,1 +1,1 @@
-##nokia WUCKS
+nokia is gay
